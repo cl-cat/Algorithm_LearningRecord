@@ -1,1 +1,0 @@
-//https://tifa-233.com/archives/draft-023/
